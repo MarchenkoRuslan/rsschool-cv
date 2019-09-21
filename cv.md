@@ -29,3 +29,11 @@ Solving complex problems gives me pleasure, I easily find a common language with
 * [Certificate of courses IT Sales Manager](https://www.dropbox.com/s/awje771k339kaza/H5M3VGNLi1Y.jpg?dl=0)
 * [Certificate of completion practically speaking English course](https://www.dropbox.com/s/6it4wravf48dag3/GVwFNtlY5bs.jpg?dl=0)
 
+## Education:
+
+* BSAEK. Bobruisk. Bachelor of programming. 2012
+* BSUIR. Minsk. Bachelor Bachelor of Engineering of Network & Infocommunications. 2018
+
+## Additional Information:
+
+* Professional interests: Currently I’m working to improve my level of English.
